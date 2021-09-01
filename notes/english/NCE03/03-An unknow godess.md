@@ -1,0 +1,7 @@
+# 03-An unknow goddess
+
+## Dictation
+
+Some time ago, an interesting discovery was made by archaeologists on the aegen island Kea. An American team explored a temple which stand in an ancert city on the promotory of Iyia Irini.
+ 
+ The city at one time must have been prosperous for enjoying a high level of civilization. House often three storys high, who builds of stones. They had large room with beautifly decorated walls. The city was even equiped with a drained system for a great many clay pipes were found beneath the narrow street.The temple which the archaeologists explored was used as a place of worship, from 15 centry BC until Roman time. In most sacry room of the temple, clay fragments of 15 status were found. Each of these represented a goddess and had, at one time been painted. The body of one statue was found among ramians dating from 15 centry BC. Its missing head happened be among ramains of the 5th centry BC. This head must be found in classic time and carefully preserved. It was very old and precious even then. When the archaeologists reconstructed the fragments. The were amazed to find the goddess turn out to be a very modern looking woman. She stood 3 feet hight, and her hand rest of her hips. She were wearing a full length skirt which swep the ground. Dispite her great age, she was very graceful indeed. But, so far, the archaeologists have been unable to discover her identity.
