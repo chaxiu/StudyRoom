@@ -31,3 +31,38 @@
 - catch a sight of figure
 - give sb. a surprise
 - go downstairs
+
+## [03-An unknow godess](./03-An unknow godess.md)
+
+- goddess
+- archaeologist
+- Aegean
+- ancient
+- promontory
+- prosperous
+- civilization
+- three storeys high
+- equip
+- drainage system
+- sacred
+- worship
+- clay pipes
+- beneath
+- narrow street
+- fifteenth century B.C
+- statue
+- in Classical times
+- reconstruct
+- hip
+- full-length
+- despite
+- graceful
+- identity
+
+
+- (discovery) be made by
+- at one time
+- be equipped with
+- date from
+- a great many
+- be amazed to do
