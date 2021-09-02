@@ -78,6 +78,7 @@
 - corporation
 - dustman
 - status
+- overall = suit for work
 
 - manual work
 - far more than
