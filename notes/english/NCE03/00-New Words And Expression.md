@@ -66,3 +66,24 @@
 - date from
 - a great many
 - be amazed to do
+
+## [04-The double life of Alfred Bloggs](./04-The double life of Alfred Bloggs.md)
+
+- frequently
+- white-collar
+- sacrifice
+- privilege
+- curious
+- embarrassed
+- corporation
+- dustman
+- status
+
+- manual work
+- far more than
+- human nature
+- be willing to do sth.
+- give rise to = lead to, cause
+- in the case of = as for (not in case of)
+- take a shower
+- keep one's secret
