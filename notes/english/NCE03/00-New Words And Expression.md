@@ -88,3 +88,27 @@
 - in the case of = as for (not in case of)
 - take a shower
 - keep one's secret
+
+## [05-The fact](./05-The fact.md)
+
+- extreme
+- statistics
+- instruct = order
+- journalist
+- president
+- African
+- impatient
+- surround
+- reluctantly = unwillingly
+- originally
+
+
+- go to extremes
+- provide with
+- lead to
+- go to press
+- fail to reply
+- be arrested
+- instruct sb. to do sth.
+- set out to do sth.
+- send to prison
