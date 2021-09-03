@@ -1,0 +1,7 @@
+# 07-Mutilated ladies
+
+## Dictation
+
+Has it ever happened to you? Have you ever put your trousers in the washing machine, and the remembered that there was a large bank note in your back pocket? When you rescued your trousers did you find the note was whiter than white? People who live in Britan needn't dispire when they make mistake like this, and a lot of people do. Forturnately for them, the bank of England have a team called Mutilated ladies, which deals with claims from people who fed their money to a machine or to a dog. Dogs it seems love chuck up money.
+
+A recent case, concerned Jane Batlen, who's xx jone, runs a successful furniture business. Jone had a very good day, and put his wallet containing three thousand pounds into a microwave oven for safe keeping. Then he and Jane when horse riding. When they got home, Jane cooked their dinner in the microwave oven and without realizing it, cooked his xx's wallet as well. Imagine their dismay, when they found a beautifully cooked wallet and notes turned to ash. John went to see his bank manager, who sent the remains the wallet, and the money to the special department of bank of England in New casle the Mutilated Ladies. They examed the remains, and John got all his money back. So long as there is something to identify, we will give people their money back. Said spoke woman of the bank. Last year, we paid 1.5 million pounds on 21,000 claims.
