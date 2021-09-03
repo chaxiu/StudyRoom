@@ -112,3 +112,30 @@
 - instruct sb. to do sth.
 - set out to do sth.
 - send to prison
+
+## [06-Smash and grab](./06-Smash and grab.md)
+
+- arcade = smaller street?
+- jewellery
+- gaze
+- assistant
+- diamond necklace
+- velvet
+- horn = speaker of car
+- blare = making sound
+- roar = making big sound
+- scramble = going in hurry or on keens
+- fantastic
+
+- go back
+- roar down
+- come to a stop
+- stay at the wheel
+- jump out
+- iron bar
+- go flying into
+- be struck by
+- help himself to
+- move off
+- rush out
+- get away
