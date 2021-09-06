@@ -139,3 +139,28 @@
 - move off
 - rush out
 - get away
+
+## [07-Mutilated ladies](./07-Mutilated ladies.md)
+
+- Mutilated = not completed
+- despair = feel no hope
+- dismay = sadness
+- department = section
+- Britain
+- Fortunately = luckily
+- microwave oven
+- chew = the movement of eating
+- safekeeping
+- identify
+- concern = is about (in this context)
+- fiancé for man and fiancée woman
+- examine verb (exam = examination)
+- spokeswoman
+
+- deal with
+- chew up
+- feed to
+- put into
+- microwave oven
+- so long as
+- pay on
