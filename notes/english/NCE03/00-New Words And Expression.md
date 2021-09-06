@@ -164,3 +164,31 @@
 - microwave oven
 - so long as
 - pay on
+
+
+## [08-A famous monastery](./08-A famous monastery.md)
+
+- monastery
+- founded = established
+- Switzerland
+- Italy
+- Europe
+- traveller
+- watchdog
+- despite
+- rashly = unthinkingly
+- attempt
+- temperature
+- monk
+- wander
+- visitor
+- Christmas
+- Easter
+- enclosure
+
+- be founded in
+- sth. be used as sth.
+- now that
+- prefer sth. to sth
+- be allowed to do
+- receive a warm welcome
