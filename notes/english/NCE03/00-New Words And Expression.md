@@ -192,3 +192,35 @@
 - prefer sth. to sth
 - be allowed to do
 - receive a warm welcome
+
+
+[09-Flying cats](./09-Flying cats.md)
+
+- fascinate
+- affectionate = loving
+- mysterious
+- submissive = obedient
+- feline
+- suspicious = not trust
+- belief
+- survive
+- independence
+- interesting
+- windowsill
+- paratrooper
+- squirrel
+- air-resistance
+- stretch
+
+- never fail to do sth.
+- human beings
+- lead adj. life
+- be suspicious of
+- a good deal of
+- be based on
+- make a study of
+- in common
+- die from
+- be shortage of
+- suffer from
+- stretch out
