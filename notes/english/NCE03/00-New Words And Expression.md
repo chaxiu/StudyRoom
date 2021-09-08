@@ -224,3 +224,38 @@
 - be shortage of
 - suffer from
 - stretch out
+
+## [10-The loss of the titanic](./10-The loss of the titanic.md)
+
+- April
+- colossal = huge
+- watertight = water-proof
+- compartment = seal room of ship
+- tragic = sad
+- flood
+- liner = big ship
+- voyage = a long journey on sea or in space
+- iceberg
+- lookout
+- collision
+- narrowly = just in time
+- immense
+- slight
+- tremble
+- faint
+- horror = fear
+- abandon
+- plunge
+
+- sail for = set out
+- by modern standards
+- at that time
+- be regards as
+- be able to
+- go down = sink
+- heavy loss of
+- be spotted by
+- just in time
+- to one's horror
+- plunge into
+- not enough for
