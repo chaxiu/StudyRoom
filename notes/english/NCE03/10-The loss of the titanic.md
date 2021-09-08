@@ -1,0 +1,7 @@
+# The loss of the titanic
+
+## Dictation
+
+The great ship Titanic sailed for New York from southampton on Apirl 10th, 1912. She was carrying 1316 passengers and a crew of 891. Even by modern standards, the 46,000 ton Titanic was a collasal ship. At that time however, she was not only the largest ship that ever been built, but was regarded as unsinkable, for she has 16 water-tide compartments. Even if two of it was flooded, she would still be able to float. The tragedy sinking of this great liner will always be remember, for it went down on her first vages, with heavy loss of lives.
+
+Four days after setting out, while the Titanic was sailing across the icy water of north of Atlantic, a huge ice burg was suddenly spotted by a look out. After the alarm has been given, the great ship turn sharply to avoid a direct collision. The Titanic turned just in time, narrowly missing the emenious wall of ice, which rose over 100 feet out of the water beside her. Suddenly, there is a slight trembly sound from below, and the captain went down to see what had happened. The noise had been so faint, that no one thought the ship had been danaged. Below, the captain realized, to his horrol, that the Titanic was sinking rapidly, for five of her 16 water-tide compartments had already been flooded. The order to abanden ship was given, and hundreds of people pluched into the icy water. As there were not enough life boats for everybody, 1500 lives were lost.
