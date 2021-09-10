@@ -259,3 +259,38 @@
 - to one's horror
 - plunge into
 - not enough for
+
+## [11-No guilty](./11-No guilty.md)
+
+- guilty
+- tolerant
+- declare
+- hardened = experienced
+- professional
+- smuggler
+- particularly
+- officious
+- confidently
+- dreadful
+- pounce
+- perfume
+- sarcastically
+- exempt
+- hair gel
+- mixture
+- unscrew
+- cap
+- nostril
+- unpleasant
+- baggage
+
+- go through
+- the green channel
+- on the other hand
+- be troubled by
+- return from
+- in a mess
+- light up
+- be exempt from
+- be greeted by
+- hurry away
