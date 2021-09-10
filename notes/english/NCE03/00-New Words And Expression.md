@@ -294,3 +294,28 @@
 - be exempt from
 - be greeted by
 - hurry away
+
+## [12-Life on a desert island](./12-Life on a desert island.md)
+
+- desert island
+- ripe = fully matured
+- unrealistic = unreal
+- paradise = heaven
+- wretched = ba, poor
+- element
+- opportunity
+- coral
+- dinghy
+- row
+- spear
+- lobster
+- tanker = ship
+- genuinely
+- Robinson Crusoe
+
+- a picture of
+- a sort of
+- fall from
+- starve to death
+- an element of truth
+- find out
