@@ -1,0 +1,7 @@
+# Life on a desert island
+
+## Dictation
+
+Most of us have formed an unrealistic picture of life on a desert island. We sometime imagine a desert island to be a sort of paradise with a sun always shine. Life there, is simple and good. Righ food falls from the trees, and you never have to work. The other side of the picture, is quite the opposite. Life on a desert island is reched. You either starve to death, or live like Robbinson Crosal, waiting for a boat, which never come. Perhaps there is an elementary truth in both of these pictures, but few of us have had the opptunity to find out.
+
+Two men who recently spent five days on a coral island wish they had stayed there longer. They were taking a badly damaged boat from the vage island to Miami, to have it repaired. During the journey, their boat began to sink. They quickly loaded a small rubber digy with food, matches, and cans of beer, and rode for a few miles across the curobine, until they arrived at a tiny coral island. There were hardly any trees on this island, and there was no water, but this did not prove to be a problem. The men collected rain water in a rubber dingy. As they had brought a spear gun with them, they had plenty to eat. They caught lobster and fish every day, and as one of them put it, "ate like kings". When a passing tanker rescued them five days later, both men were jenually sorry that they had to leave.
