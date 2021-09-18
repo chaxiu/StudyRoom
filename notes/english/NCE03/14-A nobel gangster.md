@@ -1,0 +1,7 @@
+# 14-A nobel gangster
+
+## Dictation
+
+There was a time when the owner of shops and businesses in Chicago had to pay large sum of money to gangster, in return for protections. If the money not paid promptly, the gangsters will quickly put a man out of business, by destroying his shop. Obtaining protection money is not a modern crime. As long ago as fourteenth century, an English man Sir John Hawkwood, made the remarkable discovery, that people would rather pay large sum of money than have their life work destroyed by gangsters.
+
+Six hundred years ago, Sir John Hawkwood arrived Italy, with a band of soldiers, and settled near Florence. He soon made a name for himself, and came to be known by Italians, as Giovanni Acuto. Whenever the Italian city states were in war with each other, Hawkwood used to hire his soldiers to princes who were willing to pay the high price he demanded. In times of peace, when business was bad, Hawkwood and his men will match into a city state, and after burning down a few farms, would offer to go away if protection money was paid to them. Hawkwood made large sums money in this way. Inspite of this, the Italians regarded him as a sort of hero. When he died at the age of 80, the Florentines gave him a state funeral, and had a picture painted, which was dedicated to the memory of the most vida soldier, and most notable leader, Senior Giovanni Acuto.
