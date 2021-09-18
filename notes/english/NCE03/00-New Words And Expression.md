@@ -319,3 +319,24 @@
 - starve to death
 - an element of truth
 - find out
+
+## [13-It's only me](./13-It's only me.md)
+
+- though
+- costume
+- consist
+- metre
+- pace
+- flee (fled, fled)
+- slam
+
+- go to work
+- too excited to do sth
+- dress up as
+- be impatient to do sth
+- consist of
+- put sth on
+- come straight in
+- not wanting to do sth
+- let out
+- jump back
